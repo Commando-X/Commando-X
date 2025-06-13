@@ -1,1 +1,1 @@
-Be Kind. Be Good. Be Happy.
+Be Kind. Be Good. Be Grateful.
